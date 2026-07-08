@@ -119,9 +119,9 @@ GM Institute of Technology, Davangere | Robotics & Automation Engineering
 
 ## 📫 Connect with Me
 
-**GitHub:** https://github.com/akashm8965
+**GitHub:** https://github.com/Akash-ai-gif
 
-**LinkedIn:** https://linkedin.com/in/akash-m
+**LinkedIn:** https://www.linkedin.com/in/akash-m-7a7039295?utm_source=share_via&utm_content=profile&utm_medium=member_android
 
 **Email:** akashm8965@gmail.com
 
